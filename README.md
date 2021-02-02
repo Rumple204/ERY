@@ -8,7 +8,7 @@ I will be looking for work doing snow removal this winter and would appreciate y
 Any tips or leads on work are greatly appreciated and would be great through my email and phone.
 I'm available steadily through the week and dont mind making extra time for customers.
 Hours are Negotiable...
-We are available for all kinds of work from snow removal to waste removal, just make and inquiry through email, phone or 
+I am available for all kinds of work from snow removal to waste removal, just make and inquiry through email, phone or 
 our websites automated messaging system.
 The link to my main website is eryktea.wixsite.com/website.
 starting rate for any job will start at 10$ with Guaranteed work.
