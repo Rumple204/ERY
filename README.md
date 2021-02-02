@@ -8,6 +8,7 @@ I am working on a fully automated website a well as call lines, but due to lack 
 I will be looking for work doing snow removal this winter and would appreciate your support.
 Any tips or leads on work are greatly appreciated and would be great through my email and phone.
 I'm available steadily through the week and dont mind making extra time for customers.
-Hours are 9AM-12AM on weekdays and 9AM-6PM on weekends.
-We are available for all kinds of work from snow removal to waste removal, just make and inquiry through email phone or 
+Hours are Negotiable...
+We are available for all kinds of work from snow removal to waste removal, just make and inquiry through email, phone or 
 our websites automated messaging system.
+The link to our main website is https://eryktea.wixsite.com/website 
